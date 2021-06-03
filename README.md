@@ -1,3 +1,4 @@
 # Tugas-Akhir-Metnum-2021
 haiiiiiii
 ga jelas lo
+JADI BISA NGGA NI EUY KO TULISAN GUE GA MUNCUL DI HOMENYA TD
